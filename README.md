@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ireyesm02
 - 👀 I’m interested in all AI side business 
 - 🌱 I’m currently learning about AI
-- 💞️ I’m looking to collaborate on anyone interested creating and new with AI
+- 💞️ I’m looking to collaborate on anyone interested creating and new busness with AI
 - 📫 How to reach me throught  @ireyesm02
 - 😄 Pronouns: She/her
 - ⚡ Fun fact: Love hiking
